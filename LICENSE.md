@@ -1,4 +1,4 @@
-# 
+# Automatique Skyvern plugins. Avec prêt pour l'entreprise et assistant vocal — optimisé pour des performances et une efficacité maximales.
 
 
 
